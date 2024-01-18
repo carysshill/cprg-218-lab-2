@@ -114,3 +114,21 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Brownies
+
+Ingredients
+- 1/2 cup butter OR margarine
+- 3/4 cup sugar
+- 1/3 cup Beehive OR Crown Golden Syrup
+- 1 teaspoon pure vanilla extract
+- 1/2 teaspoon salt
+- 2 eggs
+- 2 ounces unsweetended chocolate, melted
+- 1/2 cup chopped walnuts
+- 2/3 cup all-purpose flour
+
+Instructions
+1. Preheat oven to 350F
+2. Cream butter and sugar until light and fluffy. Add corn syrup, vanilla and salt; blend thoroughly. Add eggs one at a time, beating well after each addition.  Stir in melted chocolate and walnuts. Fold in flour.
+3. Pour into a greased 8-inch square pan. Bake for 22 to 26 minutes or until edges begin to pull away from pan. When cool, cut into squares.
