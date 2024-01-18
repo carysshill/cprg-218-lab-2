@@ -81,6 +81,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- 4 slices of avocado
 
 Instructions:
 1. Preheat grill to medium-high heat.
