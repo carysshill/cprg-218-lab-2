@@ -46,6 +46,28 @@ Instructions:
 4. Season with salt and pepper to taste.
 5. Top each toasted baguette slice with the tomato mixture.
 
+### Chicken Bacon Ranch Dip
+
+Ingredients
+- 6 slices bacon, chopped
+- 1 package cream cheese, softened
+- 1/2 cup sour cream
+- 2 tbsp ranch seasoning mix
+- 2 cups shredded sharp cheddar cheese
+- 1 1/2 cups chopped cooked chicken
+- 4 oz. diced pimientos, drained
+- 6 green onions, thinly sliced and divided
+- Tortilla chips, crackers, or raw vegetables, to serve
+
+Instructions
+1. Preheat oven to 350F
+2. In a 12-inch skillet, cook the bacon over medium heat, stiring often until crispy, about 8 minutes. Using a slotted spoon, remove the bacon from the pan to paper towel-lined plate.
+3. In medium bowl, use a rubber spatula to soften the cream cheese until very creamy and smooth. Add the sour cream and the ranch seasoning mix, whisking until very well combined. Fold in 1 1/2 cups of cheddar cheese, chicken, pimientos, 5 sliced green onions, and all but 1/4 cup of bacon.
+4. Spoon the mixture into a 1 quart casserole dish. Top with the remaining 1/2 cup of cheddar cheese and reserved 1/4 cup of bacon.
+5. Bake on the center rack until bubbly, 25 to 30 minutes. Sprinkle with the remaining sliced green onion.
+6. Serve immediately with tortilla chips, crackers, or raw vegetables.
+
+
 ## Entrees
 ### Spaghetti and Meatballs
 
